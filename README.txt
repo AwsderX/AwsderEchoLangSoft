@@ -1,4 +1,4 @@
-```
+- ```
 ###[Присоединиться к Telegram](https://t.me/+Q6LLOTqoz9K1yjVi)
 
 
@@ -25,4 +25,4 @@ Discord: @awsder
 Telegram: @awsderx
 Почта: awsder@yandex.ru
 Youtube: youtube.com/@Awsder_
-```markdown
+- ```markdown
