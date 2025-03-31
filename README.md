@@ -27,6 +27,6 @@
 📺 На YouTube есть видеоинструкция  
 🔗 VK: [vk.com/awsder](https://vk.com/awsder)  
 💬 Discord: `@awsder`  
-📱 Telegram: [@awsderx](https://t.me/awsderx)  
+📱 Telegram: [@awsderx](https://t.me/Awsder_Echo)  
 ✉️ Почта: `awsder@yandex.ru`  
 ▶️ YouTube: [youtube.com/@Awsder_](https://youtube.com/@Awsder_)
